@@ -31,10 +31,3 @@
 
 ---
 
-So, it's September 29th now. I'm taking the exam tomorrow. My biggest gratitude goes to thầy Ngọc, bạn Thành trợ giảng and other "classmates" for helping me revising for this exam.
-
-Just a few notes to myself:
-- Stay calm.
-- "It can be good, it can be bad. But at the end of the day, it's always good."
-
-So just do your best <3 I'm proud of you.
